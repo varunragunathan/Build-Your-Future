@@ -1,6 +1,3 @@
-# Build-Your-Future
-A easy template and daily practice to help architect your future
-
 # Goal Template
 
 Use the following template as a guidance to fill your plan. 
