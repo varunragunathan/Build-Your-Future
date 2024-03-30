@@ -19,7 +19,7 @@ Remember, this is a chance for you to architect your life the way YOU WANT!
 
 Let this be your mantra for every entry.
 
-## Immediate Goals (0-1 year after graduation):
+## Immediate Goals (0-1 year from now):
 
 ## 2 Year Plan:
 
